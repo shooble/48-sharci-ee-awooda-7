@@ -16,5 +16,5 @@ Si aad dantaada u hormariso waa in aad maskaxdaada isticmashaa, hooshana ku fili
 DOORADII INDHOOLADA: Dooro indhoole eheed oo la qabsatay in ay dhulkeeda iska faagato weliba si aan cajis laheen laakin dooro kaloo wax aragta ayaaba ku tashato maskiinta waxay soo faagto oo si raaxo leh ugu dhergi jirtay iyadoo anan wax faagin. Marwalboo dooradi indhoolaha eheed hadhuudh(GALEEY) faagta tii wax arkaysay horey ka cuntaa. 
 
 
-RAisulwasaarihi germalka BISMARCK mar wuxu dhahay DOQOMADA AYAA AMISAN IN AY QALADKOODA WAX KA BARTAA, LAKIIN ASAGA WUXU DOORBIDI JIRAY IN UU KAFAA'IDO QALADKA DADKA KALE. 
+RAisulwasaarihi germalka OTTO VON BISMARCK mar wuxu dhahay DOQOMADA AYAA AMISAN IN AY QALADKOODA WAX KA BARTAA, LAKIIN ASAGA WUXU DOORBIDI JIRAY IN UU KAFAA'IDO QALADKA DADKA KALE. 
 
